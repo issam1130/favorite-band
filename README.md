@@ -1,0 +1,5 @@
+The Roots are an American hip hop band formed in 1987 by Tariq "Black Thought" Trotter and Ahmir "Questlove" Thompson in Philadelphia, Pennsylvania. The Roots serve as the house band on NBC's The Tonight Show Starring Jimmy Fallon, having served in the same role on Late Night with Jimmy Fallon from 2009 to 2014. Current regular members of The Roots on The Tonight Show are Captain Kirk Douglas, Mark Kelley, James Poyser, Ian Hendrickson-Smith, Damon "Tuba Gooding Jr." Bryson, Stro Elliot, Dave Guy, Kamal Gray, and Raymond Angry.
+
+The Roots are known for a jazzy and eclectic approach to hip hop featuring live musical instruments[6] and the group's work has consistently been met with critical acclaim. ThoughtCo ranked the band #7 on its list of the 25 Best Hip-Hop Groups of All-Time, calling them "Hip-hop's first legitimate band."[7]
+
+In addition to the band's music, several members of the Roots are involved in side projects, including record production, acting, and regularly serving as guests on other musicians' albums and live shows.
